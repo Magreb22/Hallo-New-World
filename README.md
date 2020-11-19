@@ -1,0 +1,2 @@
+# Hallo-New-World
+a new concept of music, the life of an artist is divided into two parallel realities, self-financing is not enough to arrive at a concept of self-control and storage of one's ideas and projects that are worth more than any currency in the world. I want to create an artistic space where everyone can express themselves and earn in close contact with people without intermediaries, a self-control platform, a concept of free market for artists in the background. industries have always polluted people's souls.
